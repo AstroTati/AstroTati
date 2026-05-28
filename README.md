@@ -1,9 +1,9 @@
 ## Howdy, I'm Tatiana 🌌
 
-I'm an Astrophysicist with more than seven years of research coding experience, mostly with Python. After working in academia in Argentina, the USA, and Germany, I realised that is not where I see my future self. Of course I am still in love with the night sky and my eyes light up when someone asks me anything about the universe, but I now look ahead instead of up.
+I'm an Astrophysicist with more than seven years of research coding experience, mostly with Python. After working in academia in Argentina, the USA, and Germany, I realized that is not where I see my future self. Of course I am still in love with the night sky and my eyes light up when someone asks me anything about the universe, but I now look ahead instead of up.
 \
 \
-I am going back to basics, rediscovering myself, my skills, and my strengths. Reviewing these and the tasks I enjoy and excel at in my work day, I found my future is in **Data Engineering**. Wecolme to my journey!
+I am going back to basics, rediscovering myself, my skills, and my strengths. Reviewing these and the tasks I enjoy and excel at in my work day, I found my future is in **Data Engineering**. Welcome to my journey!
 
 ---
 
