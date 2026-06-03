@@ -10,7 +10,7 @@ I am going back to basics, rediscovering myself, my skills, and my strengths. Re
 ### Outside of working and learning, I'm...
 📖 **Currently reading**: [Wind and Truth](https://www.goodreads.com/book/show/203578847-wind-and-truth) (Brandon Sanderson), [The Seven Husbands of Evelyn Hugo](https://www.goodreads.com/book/show/32620332-the-seven-husbands-of-evelyn-hugo?from_search=true&from_srp=true&qid=uNroNOCytI&rank=1) (Taylor Jenkins Reid).
 \
-📺 **Currently watching**: The Boroughs, Star Trek: Deep Space 9.
+📺 **Currently watching**: Widow's Bay, Star Trek: Deep Space 9.
 \
 🎧 **Currently listening**: [Te miro para ver si me ves mirarte](https://www.youtube.com/watch?v=E5h-FVEryo8) (Surfistas del Sistema), [Spring girl](https://www.youtube.com/watch?v=bSC8ZrsS91E) (Adam Ten, Maori).
 
