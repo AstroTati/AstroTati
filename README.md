@@ -1,9 +1,9 @@
 ## Howdy, I'm Tatiana 🌌
 
-I have 7 years of experience in applied science, where most of my coding expertise comes from. I worked and studied in Argentina (Astronomy M.Sc.), the USA (Physics Ph.D.), and Germany (Astrophysics P.D.), which enriched both my technical and soft skills. 
+I have more than 7 years of experience in applied science, where most of my coding expertise comes from. I worked and studied in Argentina (Astronomy M.Sc.), the USA (Physics Ph.D.), and Germany (Astrophysics P.D.), which enriched both my technical and soft skills. 
 \
 \
-Exploring my interests and curiosity, I discovered a new passion and I am now changing careers, from research to data engineering and architecture. Welcome to my journey!
+Exploring my interests and curiosity, I discovered a new passion and I am now changing careers, from research to data engineering. Welcome to my journey!
 
 ---
 
