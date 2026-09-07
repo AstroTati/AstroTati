@@ -8,9 +8,9 @@ Exploring my interests and curiosity, I discovered a new passion and I am now ch
 ---
 
 ### Outside of working and learning, I'm...
-📖 **Currently reading**: Wind and Truth (Brandon Sanderson), The Seven Husbands of Evelyn Hugo (Taylor Jenkins Reid).
+📖 **Currently reading**: Las Esferas Invisibles - Diego Muzzio, Ubik - Phillip K. Dick.
 \
-📺 **Currently watching**: Cape Fear, Star Trek: Deep Space 9.
+📺 **Currently watching**: House of the Dragon, Star Trek: Deep Space 9.
 \
 🎧 **Currently listening**: [Te miro para ver si me ves mirarte](https://www.youtube.com/watch?v=E5h-FVEryo8) (Surfistas del Sistema), [Spring girl](https://www.youtube.com/watch?v=bSC8ZrsS91E) (Adam Ten, Maori).
 
